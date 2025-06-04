@@ -10,4 +10,4 @@ Ate lunch at around 3:00pm , then digged into github to actually understand what
 also in between there was modern family, karikku, etc etc.
 karyamayitt we didnt actually do anything. browsed things like skills, placement prep, a-baja etc etc. 
 then wasted all my time for this game which i got addicted to (just 4 hrs). <br>
-for more visual details here is the ["youtube" link](https://youtube.com/shorts/x0l1uKqnjzE?si=QdWsKzpM2AlpYdmS) 🌝
+for more visual details here is the [youtube link!](https://youtube.com/shorts/x0l1uKqnjzE?si=QdWsKzpM2AlpYdmS) 🌝
