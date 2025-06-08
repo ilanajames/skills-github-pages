@@ -40,5 +40,6 @@ link 🙂 ~ [june7th2025](https://youtube.com/shorts/wj4DhZak3n8?si=13U1jKgbxmPA
 ## Day-6 (8th June 2025)
 today was a sunday so daily sunday scenarios. woke up 9ish went church at 10am for 9.30 kurbana.phew. came back. went with kurian to cut his hair. ~post~ then chuma karangi shawarma kazhichu it was fun. also this chettan at shawarma kada is like 'randperum oru schoolilano padikane?' ~ "anjeneya swammmiiii". <br>
 and what, came home to some family time which i did enjoy. it was fun. should come out of my corner more. not more. but occasionally. yeah <br>
-pine went to thommachayn's adakk late evening avde poyii katttta post. nowadays idk ike how to sit . imean i would be like some non-social (which im) seated somewhere with no talks in my own world. like there is this change in mind i can feel. ha and we ate some porotta stew came back home! 😄 today was nice ☺️
+pine went to thommachayn's adakk late evening avde poyii katttta post. nowadays idk ike how to sit . imean i would be like some non-social (which im) seated somewhere with no talks in my own world. like there is this change in mind i can feel. ha and we ate some porotta stew came back home! 😄 today was nice ☺️<br>
+inna inna link inna ~ [june8th2025](https://youtube.com/shorts/RhjPOoweB_Q?feature=share)
 
