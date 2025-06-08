@@ -26,3 +26,19 @@ today we went for abaja which was kinda depressing. imean it was all a awkward w
 lets make tomorrow better 😌 you will da. i know you! 😘 <br>
 yes there is link ~ [june5th2025](https://youtube.com/shorts/GUQrRQJb9ao?si=aU3Xt_9s_zUOmMIy)
 
+## Day-4 (6th June 2025)
+you didn't. 👀<br>
+was oru bhayankara lazy day. woke up at 11ish and yeah scrolling and scrolling.. got this game 'simcity' and its quite engaging.<br>
+whole day was oru thinnu kedannu instagram thondi repeat kinda day.<br>
+yeah there is a link (pathive thettikaruthello) ~ [june6th2025](https://youtube.com/shorts/vOc9RmWm_TY?si=mXXdDhwmNvZGPTZr)
+
+## Day-5 (7th June 2025)
+again a day where we didnt do much. woke up 10ish and idk wasting on phone ig. went kply around evening 4ish and 'kumbasrichu'🙂 then went to this bookstall. onnum cheythonnuvila. oru sadha simple day along with simcity. yeaaaaaaaaaaaaah. no extra content to pour out so bye it is.<br>
+also on the way to kply, this police chettan was like 'license ondo' 'vayessathreya' 'entha padikene' i didnt like it tbh. this thing is started to irritate me. oru divsm i might burst out. yeah <br>
+link 🙂 ~ [june7th2025](https://youtube.com/shorts/wj4DhZak3n8?si=13U1jKgbxmPAaof2)
+
+## Day-6 (8th June 2025)
+today was a sunday so daily sunday scenarios. woke up 9ish went church at 10am for 9.30 kurbana.phew. came back. went with kurian to cut his hair. ~post~ then chuma karangi shawarma kazhichu it was fun. also this chettan at shawarma kada is like 'randperum oru schoolilano padikane?' ~ "anjeneya swammmiiii". <br>
+and what, came home to some family time which i did enjoy. it was fun. should come out of my corner more. not more. but occasionally. yeah <br>
+pine went to thommachayn's adakk late evening avde poyii katttta post. nowadays idk ike how to sit . imean i would be like some non-social (which im) seated somewhere with no talks in my own world. like there is this change in mind i can feel. ha and we ate some porotta stew came back home! 😄 today was nice ☺️
+
