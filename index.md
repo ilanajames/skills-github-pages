@@ -22,7 +22,7 @@ it was ammedem achyadem 27th wedding anniversary and we went out for dinner. it 
 yep there is a link for that tooooooo ~ [june4th2025](https://youtube.com/shorts/ZoC7GiOD6DI?si=1nJ-_N6a3CsvdRtL)
 
 ## Day-3 (5th June 2025)
-today we went for abaja which was kinda depressing. imean it was all a awkward weird stuff happening and later i went with aruna to lh and guess what we watched 'tourist family' movie which is again oru nanma padam. onnum parayanda!. also i went by car. yayy! ennitt thirich amma & anini was there from pambady and yeah came home to everyday scenarios. didnt do anything much. rn at 02:33 im starving. all i ate was breakfast and a biriyani. whateva. my food habits are not so good fyi. yeah thats it.<br>
+today we went for abaja which was kinda boring. imean it was all a awkward weird stuff happening and later i went with aruna to lh and guess what we watched 'tourist family' movie which is again oru nanma padam. onnum parayanda!. also i went by car. yayy! ennitt thirich amma & anini was there from pambady and yeah came home to everyday scenarios. didnt do anything much. rn at 02:33 im starving. all i ate was breakfast and a biriyani. whateva. my food habits are not so good fyi. yeah thats it.<br>
 lets make tomorrow better 😌 you will da. i know you! 😘 <br>
 yes there is link ~ [june5th2025](https://youtube.com/shorts/GUQrRQJb9ao?si=aU3Xt_9s_zUOmMIy)
 
@@ -40,6 +40,14 @@ link 🙂 ~ [june7th2025](https://youtube.com/shorts/wj4DhZak3n8?si=13U1jKgbxmPA
 ## Day-6 (8th June 2025)
 today was a sunday so daily sunday scenarios. woke up 9ish went church at 10am for 9.30 kurbana.phew. came back. went with kurian to cut his hair. ~post~ then chuma karangi shawarma kazhichu it was fun. also this chettan at shawarma kada is like 'randperum oru schoolilano padikane?' ~ "anjeneya swammmiiii". <br>
 and what, came home to some family time which i did enjoy. it was fun. should come out of my corner more. not more. but occasionally. yeah <br>
-pine went to thommachayn's adakk late evening avde poyii katttta post. nowadays idk ike how to sit . imean i would be like some non-social (which im) seated somewhere with no talks in my own world. like there is this change in mind i can feel. ha and we ate some porotta stew came back home! 😄 today was nice ☺️<br>
+pine went to thommachayn's adakk late evening avde poyii katttta post. nowadays idk ike how to sit . imean i would be like some non-social (which im) seated somewhere with no convos & somewhere in my own world. i could feel this change. ha and we ate some porotta stew came back home! 😄 today was nice ☺️<br>
 inna inna link inna ~ [june8th2025](https://youtube.com/shorts/RhjPOoweB_Q?feature=share)
 
+## Day 7 8 9 10
+hey i don't remember much of what happened next. it was all oru lazy cliche daily routines of scrolling eating sleeping. also yes we broke the pact. <br>
+ill give you the link and all ~ [june9th10th11th2025](https://youtube.com/shorts/kOF5h5cb8uw?feature=share) [june12th2025](https://youtube.com/shorts/HK95cW-lNAM?feature=share) <br>
+
+okey we gave up, but we are not considering this as a failure. we'll do this again and again until we maintain the consistency. also because vere paniyila and vere vazhiyila. so yeah, more blogs incoming, more journals incoming, and if you are reading this or if i let you read this, know that it's because you are really really special and never take that for granted. hmmmmmm. <br>
+also i wanted to make this korechudi bhangi with colours, themes and all. not in the mood rn. next time for sure. yeah so bye. <br>
+i guess this is the end of 'this' blog. <br>
+### Stay Tuned! Bye! 🖤
