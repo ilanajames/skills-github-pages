@@ -47,7 +47,7 @@ inna inna link inna ~ [june8th2025](https://youtube.com/shorts/RhjPOoweB_Q?featu
 hey i don't remember much of what happened next. it was all oru lazy cliche daily routines of scrolling eating sleeping. also yes we broke the pact. <br>
 ill give you the link and all ~ [june9th10th11th2025](https://youtube.com/shorts/kOF5h5cb8uw?feature=share) [june12th2025](https://youtube.com/shorts/HK95cW-lNAM?feature=share) <br>
 
-okey we gave up, but we are not considering this as a failure. we'll do this again and again until we maintain the consistency. also because vere paniyila and vere vazhiyila. so yeah, more blogs incoming, more journals incoming, and if you are reading this or if i let you read this, know that you are really really special and never take that for granted. hmmmmmm. <br>
+okey we gave up, but we are not considering this as a failure. we'll do this again and again until we maintain the consistency. also because vere paniyila and vere vazhiyila. so yeah, more blogs incoming, more journals incoming, and if you are reading this or if i let you read this, know that you are really really special and never take that for granted. hmmmmmm. 😌 <br>
 also i wanted to make this korechudi bhangi with colours, themes and all. not in the mood rn. next time for sure. yeah so bye. <br>
 i guess this is the end of 'this' blog. <br>
 ### Stay Tuned! Bye! 🖤
